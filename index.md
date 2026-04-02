@@ -13,7 +13,7 @@ I enjoy:
   - In high school, I used to draw iconic characters from shows
   - Now, I try to make up my own characters
   - I prefer using pencil and paper, but sometimes also pen.
-- Distening to music in my spare time. 
+- Listening to music in my spare time. 
 
 My top 3 bands are: 
 1. Pierce the Veil
